@@ -26,4 +26,4 @@ March 4, 2015
 3. After Joe decided to join the navy, the recruiter enthusiastically shook his hand.
 4. A skeleton caught my attention when I entered the doctor's office.
 5. Some fireworks were set off a day early to plese the children.
-6. Though only sixteen, UCLA accepted Martha's application.
+6. Though she is only sixteen, UCLA accepted Martha's application.
